@@ -23,4 +23,4 @@
 <br>
 2. Bata los huevos con la leche y la sal.
 <br>
-6. Cocine a FUEJOH medio, voltee con cuidado y sirve.
+6. Cocine a fuego medio, voltee con cuidado y sirve.
