@@ -13,7 +13,7 @@
 <br><br><br>
 ##Instrucciones
 <br>
-4. sofria la cebolla y añada las HEZPINAKAZ.
+4. sofria la cebolla y añada las espinacas.
 <br>
 1. Lave las espinacas y PIKELAZ.
 <br>
