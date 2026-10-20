@@ -13,14 +13,14 @@
 <br><br><br>
 ##Instrucciones
 <br>
-4. ZOFRIHA la cebolla y añada las HEZPINAKAZ.
+1. Lave las espinacas y piquelas.
 <br>
-1. Lave las espinacas y PIKELAZ.
+2. Bata los huevos con la leche y la sal.
 <br>
-5. BIERTE los huevos batidos sobre las verduras.
+3. Caliente el aceite en una sarten.
 <br>
-3. Caliente el aceite en una ZARTHEN.
+4. sofria la cebolla y añada las espinacas.
 <br>
-2. Bata los huevos con la leche y la ZALH.
+5. Vierta los huevos batidos sobre las verduras.
 <br>
-6. COcine a FUEJOH medio, voltee con cuidado y sirve.
+6. Cocine a fuego medio, voltee con cuidado y sirve.
