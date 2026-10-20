@@ -19,7 +19,7 @@
 <br>
 5. Vierta los huevos batidos sobre las verduras.
 <br>
-3. Caliente el aceite en una ZARTHEN.
+3. Caliente el aceite en una sarten.
 <br>
 2. Bata los huevos con la leche y la ZALH.
 <br>
